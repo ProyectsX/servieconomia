@@ -28,3 +28,8 @@ PARA 2022  CADA TOKEN SERÁ EL EQUIVALENTE A $20.000
 Una oportuidad de  hacer negocios a nivel mundial.
 
 Estas preparado para dar el gran salto !!!
+
+Una vez realices el pago por favor cominicate y manda un mensaje con el hash de tu transacción  por Twitter:
+https://twitter.com/servieconomia
+
+++++++++++++++++++++++++>>>>>>>>>><<<<<<<<<<<<+++++++++++++++++++++++++++++
